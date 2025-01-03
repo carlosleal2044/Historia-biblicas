@@ -1,0 +1,1 @@
+a intenção aqui é vc estudar a biblia de uma forma clara ao longo do tempo e gerações que foram passando para que cada um ao estudar a história bíblicas de forma que entenda cada história e suas épocas 
